@@ -59,8 +59,6 @@ Ne laisse jamais tes casernes au repos. Plus tu as d’unités, plus tu peux dé
 ### **4. Profite des événements**
 Les bonus d’événement + les ressources illimitées = jackpot. Tu progresses en un éclair.
 
----
-
 ## **Comment éviter les erreurs de débutant dans Evony**
 
 Quand on commence à jouer à Evony, c’est facile de faire des erreurs qui peuvent ralentir ta progression. L’une des plus courantes ? Construire tout et n’importe quoi sans plan. C’est un piège classique. Ton royaume doit avoir une structure bien pensée pour éviter les pertes de ressources et de temps. Par exemple, trop investir dans les fermes et oublier les casernes, c’est comme avoir un supermarché géant mais pas d’armée pour le défendre. Mauvaise idée.
